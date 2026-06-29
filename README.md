@@ -14,4 +14,4 @@ BSc Agriculture @ Sri Sri University · pivoting into agri-data analytics. I'm a
 **A bit more:**
 outside analytics — I make beats in FL Studio, run, and think too much about nihilism. You can find my writing on [Medium](https://medium.com/@adityaverma04).
 
-📫 How to reach me: [LinkedIn](www.linkedin.com/in/aditya-verma-av)
+📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/aditya-verma-av)
